@@ -1,0 +1,1 @@
+# piranti_bergerak
